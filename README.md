@@ -1,1 +1,1 @@
-# HackMIT2025
+Liam Hanrahan, Michelle Su, Coleman DePlussie, Mohamed Algraiw
